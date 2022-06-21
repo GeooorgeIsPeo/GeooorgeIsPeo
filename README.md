@@ -4,4 +4,4 @@
  If anyone wants to send me a script or Collab on something then go ahead lol -
  geooorge#1126 - my disc
 :3
-xddddddd poop
+       also i eat children
